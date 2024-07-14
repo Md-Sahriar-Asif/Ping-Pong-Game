@@ -21,5 +21,4 @@ If you have any feedback, please reach out through mdsahriar182@gmail.com
 
 ## Screenshots
 
-You can find some screenshots here: https://x.com/SAReeman4/status/1812563457587482993
-
+You can find some screenshots here: https://x.com/SAReeman4/status/1812569941851464047
